@@ -1,0 +1,2 @@
+# premium-amber-cab-001-amber-cabochon-cutting-polis
+Tired of inconsistent polish, lost notes, and wasted rough on your amber cabochons? The Amber Cabochon Cutting &amp; Polish Craft Hub ends the chaos.  This Notion template centralizes every step from rough stone selection to final polish, ensuring repeatable, high-quality results. No more scattered spreadsheets or forgotten grit sequences—track yields,
